@@ -1,0 +1,11 @@
+{
+    "disableAutoUpdate": true,
+    "name": "Zerk-script",
+    "author": "Bernkastel",
+    "description": "==",
+    "version": "1.0",
+    "options": {
+        "niceName": "Zerk-script",
+        "guiName": "Zerk-script"
+    }
+}
