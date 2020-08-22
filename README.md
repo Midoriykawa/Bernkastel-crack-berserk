@@ -4,3 +4,4 @@ Bernkastel-crack-zerker Kishirika Kishirisu#6329
 I exchange scripts, only new ones! eu 20$
 all scripts are available
 https://discord.gg/EDY2txj
+\\
