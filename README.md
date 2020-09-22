@@ -1,6 +1,5 @@
 # Bernkastel-crack-berserk
 
-\\\\\\weekend promotion, the script costs $ 7 and not $ 15\\\\\\\
 
 all scripts will be equal to $ 50 if you take them at once
 you can exchange them with friends, or share, but do not distribute them everywhere
