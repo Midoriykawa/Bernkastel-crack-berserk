@@ -1,6 +1,6 @@
 # Bernkastel-crack-berserk
 !!!!!!!!!!!!!!!!!!!!!\\\There are discounts on weekends from 25 to 27, the script will cost $ 8, and the entire pack - $ 38.\\\\\\\\\\
-
+https://discord.gg/9puzjjc
 all scripts will be equal to $ 50 if you take them at once
 you can exchange them with friends, or share, but do not distribute them everywhere
 you can pay 1 script for 15 $ and if you like everything, write to me and pay another 35 $ and get absolutely all script
