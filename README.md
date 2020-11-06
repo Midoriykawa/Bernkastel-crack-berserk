@@ -1,5 +1,5 @@
 # Bernkastel-crack-berserk
-Weekend discounts! 8$- 1 script
+Weekend discounts! 7$- 1 script
 recommend me to your friends! if they buy the script, you will get 1 as a gift for bringing a friend
 \\\\\Weekend discounts! have time, a whole package of scripts is not $ 50, but $ 32\
 https://discord.gg/WnZZncQ
