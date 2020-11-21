@@ -1,4 +1,5 @@
 # Bernkastel-crack-berserk
+One-time offer, the whole pack of scripts will cost $ 20, I sell only to 3 people
 Weekend discounts! 10$- 1 script
 recommend me to your friends! if they buy the script, you will get 1 as a gift for bringing a friend
 \\\\\Weekend discounts! have time, a whole package of scripts is not $ 50, but $ 32\
