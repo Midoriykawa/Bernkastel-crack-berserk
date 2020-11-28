@@ -1,6 +1,6 @@
 # Bernkastel-crack-berserk
+black sale, 1 script $ 5 all scripts $ 20 valid for a week
 
-Weekend discounts! 10$- 1 script
 recommend me to your friends! if they buy the script, you will get 1 as a gift for bringing a friend
 \\\\\Weekend discounts! have time, a whole package of scripts is not $ 50, but $ 32\
 https://discord.gg/WnZZncQ
