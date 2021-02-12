@@ -1,5 +1,5 @@
 # Bernkastel-crack-berserk
-black sale, 1 script $ 5 all scripts $ 20 new years sale the promotion ends on January 10
+black sale, 1 script $ 7 all scripts $ 32  sale the promotion ends on February  29 
 
 recommend me to your friends! if they buy the script, you will get 1 as a gift for bringing a friend
 \\\\\Weekend discounts! have time, a whole package of scripts is not $ 50, but $ 32\
