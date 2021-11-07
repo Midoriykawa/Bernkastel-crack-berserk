@@ -9,7 +9,7 @@ you can exchange them with friends, or share, but do not distribute them everywh
 you can pay 1 script for 10 $ and if you like everything, write to me and pay another 30 $ and get absolutely all script
 
 Bernkastel-crack-zerker Kishirika Kishirisu#6329
-I exchange scripts, only new ones! 
+I exchange scripts, only new ones! !
 all scripts are available.
 
 
